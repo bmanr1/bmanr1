@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @bmanr1 a.k.a. Wilson III
+- 👀 I’m interested in learning and otherwise.
+- 🌱 I’m currently learning at University
+- 💞️ I’m looking to collaborate on absolutely nothing <3
+- 📫 How to reach me: bmanr1@gmail.com
